@@ -1,1 +1,1 @@
-# stoicstories.github.io
+# stoicstories.com
